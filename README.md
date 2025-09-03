@@ -220,38 +220,40 @@ https://universe.roboflow.com/leo-ueno/people-detection-o4rdr
 
 https://www.udemy.com/course/complete-course-in-creo-parametric/?srsltid=AfmBOopaAMU_Oi8dXIYYrWMBsolTLWUzgP8pl7yd8NZH7CvNCAMx3Ior&utm_source=chatgpt.com&couponCode=LEARNWITHUSNOW
 
+https://www.youtube.com/@CADPLMGuy/playlists
 
 
 
-
-
+https://www.udemy.com/course/complete-course-in-autocad-electrical-2021/?couponCode=LEARNWITHUSNOW
 https://www.udemy.com/course/creo-parametric-for-design-engineer/?srsltid=AfmBOopOYQju1vmZi-Hp_MqxBU5a_vF9EomaeXJXCsFLBUFco0b6mRAN&utm_source=chatgpt.com&couponCode=LEARNWITHUSNOW
 
 
 https://www.udemy.com/course/ptc-creo-parametric-70-solid-part-modeling-complete-course/?srsltid=AfmBOopSEQYqkgrt4PgTLUqOfTiaKJFDg_eJqkDRW-qW2v_M_FET6rPv&utm_source=chatgpt.com&couponCode=LEARNWITHUSNOW
 
-
+https://www.udemy.com/course/complete-electrical-design/?couponCode=LEARNWITHUSNOW
 
 https://www.udemy.com/course/pro-engineer-creo-paramatic-basic-advance-level-video-trianing/?srsltid=AfmBOoqIcQHbH0wYTFQpXysQAgC2i1-TVRUkBieDzOPdLij-5sDs-tVn&utm_source=chatgpt.com&couponCode=LEARNWITHUSNOW
 
-
+https://www.udemy.com/course/mastering-eplan-course-on-electrical-engineering-design/?couponCode=LEARNWITHUSNOW
 
 https://www.udemy.com/course/creo-parametric-50/?srsltid=AfmBOortJunJ6yamYpFOfUw2p7xqrfCWWckDoYz65HHzHUqcwiswsH5z&utm_source=chatgpt.com&couponCode=LEARNWITHUSNOW
+https://www.udemy.com/course/complete-electrical-design/?couponCode=LEARNWITHUSNOW
 
+https://www.udemy.com/course/creo-parametric-for-design-engineer/?couponCode=LEARNWITHUSNOW#instructor-1
 
+https://www.udemy.com/course/complete-course-in-catia/?couponCode=LEARNWITHUSNOW
 
+https://www.mcaeconsulting.com/
 
+https://www.udemy.com/course/ptc-creo-parametric-complete-course/?srsltid=AfmBOoqHK456GtK2C6-SXyDcmJXIaFM5mseqkXV2kUM_qv2_HjtMmv62&utm_source=chatgpt.com&couponCode=LEARNWITHUSNOW
+https://www.udemy.com/course/advanced-etap-power-system-training-for-electrical-engineers/?couponCode=LEARNWITHUSNOW
 
+https://www.mcaeconsulting.com/
 
+https://www.udemy.com/course/mastering-eplan-course-on-electrical-engineering-design/?couponCode=LEARNWITHUSNOW
+https://www.udemy.com/course/complete-electrical-theory-design-calculations/?couponCode=LEARNWITHUSNOW
 
-
-
-
-
-
-
-
-
+https://www.udemy.com/course/creo-parametric-for-design-engineer/?couponCode=LEARNWITHUSNOW#instructor-1
 
 
 
