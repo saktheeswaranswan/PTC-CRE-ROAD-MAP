@@ -1,10 +1,10 @@
 https://universe.roboflow.com/universiti-teknologi-petronas/slds-same-size
 
-
+https://www.udemy.com/course/complete-course-in-catia/?couponCode=LEARNWITHUSNOW
 
 https://universe.roboflow.com/universiti-teknologi-petronas/slds-same-size
 
-
+https://cadflix.com/registration/
 
 https://universe.roboflow.com/mresult-p4kwx/bom-jvwae
 
